@@ -1,1 +1,4 @@
 # tugas-logika-fuzzy
+MIFTAHUL JANNAH SALAM
+E1E120033
+GANJIL
